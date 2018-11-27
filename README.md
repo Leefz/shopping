@@ -9,3 +9,4 @@ Send PRs! (won't buy what's rejected)
 
 * pretz sticks
 * miso
+* plushie hawk nanatsu no taizai (canette)
