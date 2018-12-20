@@ -11,3 +11,5 @@ Send PRs! (won't buy what's rejected)
 * miso
 * plushie hawk nanatsu no taizai (canette)
 * gashapon DBZ (yoyo)
+* Goodies Nightmare Before Christmas (Ulysse)
+* Anything stupid enough (Ulysse)
